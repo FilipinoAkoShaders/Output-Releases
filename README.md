@@ -1,11 +1,17 @@
 # MY RELEASES
-This Is Filipino ako
 
-im A creator
+I Will Release My Creations Here
+like
+Addons
+Mods
+Shaders
+even more.... 
 
-of pe and je
+SUBSRIBE TO MY CHANNEL
+FilipinoAko
 
-i create shader or addons
-then i created this for outputs
+Hatdog Shaders Released Here...
 
-Enjoy! :)
+Adreno And Mali Support
+Snapdragon Only
+2gb+ ram
