@@ -1,17 +1,12 @@
-# MY RELEASES
+## FilipinoAko
 
-I Will Release My Creations Here
-like
-Addons
-Mods
-Shaders
-even more.... 
+All of my Things Will Be released here
 
-SUBSRIBE TO MY CHANNEL
-FilipinoAko
+## Usefull Links
 
-Hatdog Shaders Released Here...
+Subscribe To My Channel
+[FilipinoAko](https://youtube.com/c/FilipinoAkoYT)
 
-Adreno And Mali Support
-Snapdragon Only
-2gb+ ram
+Join To My Discord Server
+[FilipinoAko Discord](https://discord.gg/ymsDeHAMPY)
+
